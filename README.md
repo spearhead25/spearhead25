@@ -30,5 +30,7 @@ I love building projects and solving real-world problems. Open to working togeth
 
 📫 Reach out to me here: [Email Me](harshulmalik5@gmail.com) 
 🔗 Connect with me on [LinkedIn](https://www.linkedin.com/in/harshul-malik/)
+[Visit my Hashnode Profile](https://hashnode.com/@harshulmalik5)
+
 
 🚀 Let's build something great together!
